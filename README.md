@@ -1,5 +1,5 @@
 # Hello 👋
-📧 Email me: sunhaoran.hte@qq.com
+📧 Email me: sunhaoran.hte@gmail.com
 
 📌 Visit my blog: https://juejin.cn/user/2133495196168221
 
